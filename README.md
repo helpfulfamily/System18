@@ -62,8 +62,6 @@ Eren'in babası Deniz'in de acıkmış olabileceğini düşünüp yemeğe davet 
 
 Gece olup bulutlar dağıldığında Eren'in dışarı çıktığını gören Deniz, onunla beraber çıkıp hava almak istemişti ki Eren; "Bu gece soğuk ve ıssız. Rüzgârın ve ağaçların sesi aldatıcı olabilir, korkabilirsin." dedi. Deniz ise; "Yıldızlar da bir o kadar güzel olmalı! Bazen, dalıp gidiyorum onları izlerken. Aslında ne kadar da ufak olduğumuz gerçeğini yüzüme vuruyor gökyüzü."  Eren gülümseyip yolu işaret etti; “Elbette ne istediğine ben karar veremem.”
 
-++++++++++++++++++++++++++++++++
-
 Ormanın derinliklerinde, korktuğu bir şey varmış gibi Eren’in ve Deniz’in arkasından endişe ile seslendi; “Eren, sana defalarca kez oraya gitmemen gerektiğini söyledim. Gitmemelisin.”
 Eren; “Biliyorum baba. Ama sen karşı çıktıkça içimden bir ses oralarda çözmem gereken bir şeyler olduğunu söylüyor.” dedi ve gülümseyip elini kaldırarak selam verdi. Ormana doğru ilerlediği sırada Eren’in babası nefes almakta zorlanmaya başladı. Ancak Eren bundan bihaber yoluna devam etti. 
 
@@ -157,12 +155,78 @@ O esnada Aru’nun bir arkadaşı gelip Aru’nun kulağına bir şey söyledi v
 
 Eren o gün Uyum Cafe’den bilincinin aydınlandığını hissederek ve biraz da merak içerisinde ayrılmıştı. Bu his, onun gelip gidişlerini sıklaştırmaya yetmişti. Birkaç hafta boyunca bu geliş gidişler devam etti ve bir karar verdi; “Deniz! Hayat, karnını doyurmaktan ibaret olmamalı. Kendime bir şans verip şehre taşınacağım.” 
 
-Deniz ufak bir tebessüm Eren’e bakıp; “Böyle bir karar vereceğini tahmin ettiğim için Uyum Cafe’ye yakın bir ev bulmuştum. Eğer beğenecek olursan o evde kalabilirsin. Bir tanıdığımın evi ve sana kefil olduğum için istediğin kadar kalabileceğini söyledi.” 
++
++
++
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
++
++
++
 
-              
- 
- 
+Deniz ufak bir tebessüm ile Eren’e bakıp; “Böyle bir karar vereceğini tahmin ettiğim için Uyum Cafe’ye yakın bir ev bulmuştum. Eğer beğenecek olursan o evde kalabilirsin. Bir tanıdığımın evi ve sana kefil olduğum için istediğin kadar kalabileceğini söyledi. Evi görmek ister misin?” 
 
+Eren; "İşlevini yerine getirebiliyorsa yeterli benim için. Bir evden çok da büyük beklentilerim yok. Sen yaşanabilir bir ev olduğunu düşünüyorsan, benim için de öyledir eminim ki." 
+
+Deniz; "Yine de içine sinmesi için gidip görelim. Zaten çok da uzak değil. Deniz sitesindeki ilk bina ve ilk daire." 
+
+Eren, Deniz'in heyecanını bastırabilmek için daireye göz gezdirmeyi kabul etti ve bu durum dolaylı olarak taşınma aşamasının da hızlanmasına yardımcı oldu. O akşam kulübedeki en önemli eşyaları topladı ve hemen ertesi günü Deniz sitesindeki daireye taşındı. 
+
+Perdeleri takmak için merdivene çıktığı sırada kapı çaldı. Eren ve Deniz ellerindeki işi bırakıp aynı anda kapıya yöneldi. Kapıyı Eren açtı ama Deniz'in aksine gelen kişiyi tanımıyordu. 
+
+Deniz, kapıdaki adama bakıp; "Tanıştırayım baba, bu sana bahsettiğim arkadaşım Eren. Eren... Bu benim babam, Kâmil." 
+
+Eren anlam veremediği bir sebepten dolayı mutlu hissetmişti ve Deniz'in babasını içeriye davet etti. 
+
+Kamil eve geçip odaları gezdikten sonra; "Daha erken tanışmak isterdim ama uygun zamana karar verememiştim. Umarım şimdi rahatsızlık vermemişimdir." diyerek elindeki poşetleri Eren'e verip; "Bunları taşınma hediyesi olarak getirdim. Pek bir şey değil ama kabul edersen mutlu olurum." dedi. 
+
+Eren kibarca teşekkür edip hediyeleri aldı ve içindekilerin ne olduğuna bakmadan pencerenin kenarında duran sandalyenin üzerine koydu. 
+
+O esnada Deniz, babasına bakıp teşekkür edercesine gözlerini kırpıp başını eğdi ve tebessüm etti. Babasının anlayışlı yaklaşımından ve nezaketinden dolayı çok mutlu hissediyordu. Kendini bildi bileli babası ile hiçbir sorunu olmamıştı ama annesi Gülseren'in psikolojik sorunları olduğu için evde sürekli bir gerginlik ortamı oluyordu. 
+
+Kamil, sakin bir adamdı ama karısı Gülseren'in ileri derecedeki rahatsızlığı ile uğraşmak da kolay olmuyordu. Tartışmaları sırasında sesini yükselten ve şiddet kullanan taraf her zaman Gülseren oluyordu. Hatta tedavilere başlamadan önce bu şiddetin boyutu Kamil'i birkaç defa bıçakla yaralamaya kadar ilerlemişti. Kamil tüm bunlara rağmen Gülseren'e sabır ve erdemle yaklaşmıştı. Çünkü biliyordu ki Gülseren'in yaşadıkları hafife alınmayacak türden şeylerdi ve birçoğuna kendisi de şahit olmuştu. Ama ne yazık ki hiç kimsenin yapabileceği bir şey yoktu. 
+
+Gülseren, evlendikten kısa bir süre sonra hamile kalmıştı ve dünyalar güzeli bir oğulları olmuştu. Oğulları, ikisi için de en kıymetli hazineydi. 3 yaşına girdiği günün sabahı uyandıklarında oğulları yatağında yoktu. Gülseren; "Göz açıp kapayıncaya kadar büyüdü. Şimdi bizimle saklambaç bile oynuyor baksana Kamil." dedi. Kamil de gülümseyip; "Bakalım kim önce bulacak?" diye yanıt verdi. 
+
+Kamil kendine güveniyordu. Çünkü oğlu her zaman aynı yere saklanıyordu; Çatı katındaki sandığın içine. Kendinden emin adımlarla merdivenleri çıktıktan sonra çatı katının ışığını yaktı. Ama daha sandığa bakamadan Gülseren'in çığlığını duydu. Karısının yanına gittiğinde o inanılmaz manzarayı görmüştü; Oğlu salondaki şöminenin önünde, kanlar içerisinde yatıyordu. Oğlunun önüne kadar yavaş adımlarla ve donuk bakışlarla yürüdü. Yanına vardığında dizlerinin üzerine yığıldı ve yavaşça oğlunun ayağını tuttu. Oğlunun soğuk ve sert ayaklarına değdiği an, gözlerindeki yaşı serbest bıraktı! 
+
+İkisi de çocuklarını kaybetmenin hüznü içindeyken ev telefonu çalmaya başladı. Ama ikisinin de telefona cevap verebilecek gücü yoktu. Gelen aramaların ardı arkası kesilmiyordu. Yaklaşık 1 saat kadar telefonları sürekli çaldı ve bu sefer evlerinin zili, ısrarla çalmaya başladı. En sonunda Kamil gücünü toplayıp kapıya bakabilmişti. Kapıdaki kişi karısının kız kardeşi Cemre'ydi. Ağlamaktan gözleri şişmişti. Cemre; "Annem... Annemi kaybettik. Sabah uyandığımızda... Salonda, yerde öylece kanlar içinde yatıyordu." dedi ve elleriyle yüzünü örtüp içeri girdi. Kamil bunu duyunca, durumun normal olmadığını anlamıştı. Ortada planlı olarak işlendiği bilinen iki cinayet vardı. Cemre salona gittiğinde ikinci bir şok yaşamıştı. Yeğeni de annesi gibi kanlar içerisinde yatıyordu. Yorgun sesi ile sitem edip koşarak yeğeninin yanına çöktü ve yüksek sesle ağlamaya başladı. Ablasına sarılıp; "Annem... Annem de..." dedi ama devamını getirememişti. Gülseren oğlunun acısının üzerine, çok sevdiği annesinin de acı haberini aynı anda alınca tamamen donuklaşmıştı.
+
+Cenaze sonrasında Gülseren'in tedavi görmesine karar verilmişti. Tedavi başladıktan 2 hafta sonra katilin yakalandığı haberini almışlardı. Olayı araştıran yetkililer, bu olayın birden fazla insan tarafından organize edildiğini düşünüyordu ama elde edilen yeni bulgularla katile ulaştıklarında her şeyi öğrenmişlerdi; Her şeyi planlayan yalnızca bir kişi vardı ve cinayetleri de kendisi işlemişti. Katil, takıntılı bir sapıktı ve Gülseren'i gençliğinden beri seviyordu. Gülseren hiçbir zaman onu onaylamamıştı ve hiçbir şekilde hoşlanması için çaba göstermemişti. "Gözlerine aşık oldum, seni elde etmesi zor olduğu için aşık oldum." derdi. Mahkemede verdiği ifadede; "Evlenmemesini söylemiştim. Eğer evlenirse ona unutamayacağı bir acı yaşatacağımı söylemiştim. Bana inanmalıydı. Hepsi onun suçu!" diyerek kendisini savunmaya çalışmıştı. Ancak çıkarıldığı mahkemece suçunun cezasına karar verildi ve hapsedildi. 
+
+Kamil, birkaç lüks oteli, büyük bir şirket ortaklığı ve borsada yüklü miktarda parası olan bir adamdı. Ancak hiçbir zaman lükse düşkünlüğü olmamıştı. Maddi gücünü gizlice, yardıma ihtiyacı olan insanlar için kullanıyordu. Sadece, insanlara daha fazla yardım edebilmek için daha çok kazanmak ve başarılı olmak istiyordu. Zaten biliyordu ama oğlunu bu şekilde kaybetmek ona, her insana güvenilemeyeceğini birkere daha öğretmişti. Bu nedenle maddi gücü yüzünden kendisini hedef olarak belirleyebilecek insanlara karşı önlem almak için zenginliğini gizlemeye karar vermişti. Zaten onun için önemli olan zenginliği ile gösteriş yapmak da değildi. 
+
+Aradan geçen yıllarda karısının tedavileri iyi sonuçlar vermeye başlamıştı. En azından artık ilk günlerdeki gibi değildi. Birkaç yıl sonra Gülseren, yeniden hamile olduğunu öğrenmişti ve sevinçle kocasının boynuna sarılmak yerine ona doğru bakıp, ağlamaya başladı; "Korkuyorum..." dedi. "Bu sefer korkman için hiçbir sebep yok." dedi Kamil. Hüznü ve mutluluğu aynı anda yaşıyorlardı o an. İşte Deniz, o zaman dünyaya gelmişti; Gizli bir milyarderin, masum kızı olarak. 
+
+Tanıma fırsatı bulamadığı kardeşinin acısı ile dolu bir evde, onun acısı ile zor nefes alan bir annenin yarı donuk bakışları arasında, sırtını babasının sıcak kucağına yaslayarak büyümüştü. Babası her zaman güvendiği bir sığınak olmuştu Deniz için. Ama ergenlik dönemlerinin verdiği asabi zamanlar gelip çattığında, aslında hiç yapmayacağı şeyler yapmaya ve sonrasında pişman olmaya başlamıştı. Nitekim en son evden kaçması da bu dönem içerisindeydi. Yaptığı bir hata da olsa, iyi bir sonucu olmuştu; Eren ile tanışmıştı. 
+
+Ve şimdi ise, hiç ummadığı bir anda tanıştığı Eren ile babasının sohbetini, tebessüm edişlerini izliyordu. Hayatın insana neleri sunacağı hiç belli olmuyordu.
+
+Kamil; "Deniz. Bizimle misin? Aklın başka yerlerde gibi sanki." dediği an Deniz de başını hafifçe sallayıp; "Öylece dalmışım baba. Sadece... Mutluyum. Teşekkür ederim geldiğin için." dedi. 
+
+Kamil; "Tahmin ettiğim gibi, evin güzel bakıma ihtiyacı var. Uzun süredir boş duruyordu ve bakım yaptırmak için hiç fırsatımız olmamıştı. Bu yüzden evin temizliği ve boyası için birkaç kişi gelecek. Biz de onların işini kolaylaştırmak için biraz hazırlık yapalım. Ne dersiniz?" dedi. Yanıt bile almadan kollarını sıvayıp Eren'in taktığı perdeleri geri çıkarmakla işe başladı. 
+
+Gülseren'in yanında yardımcı bir bayan olduğu için Kamil gün boyu yardım edebilmişti. Güzel vakit geçirmişlerdi ve bir o kadar da yorulmuşlardı. Saat gece yarısına ulaşınca işlerin hepsi bitmişti ve rahat bir nefes aldıktan sonra Deniz ile birlikte evlerine gittiler.
+
+
+Eren, yalnız kalınca Kamil'in getirdiği hediyeleri açıp yerleştirmek istemişti. Önce büyük olan kutuyu poşetten çıkarttı. Biraz ağırdı ve kırılabilecek bir şey olabileceğini düşünüp yavaşça yere bıraktı. Kutunun içindeki, çantası ile birlikte koyulan bir dizüstü bilgisayardı. Deniz, babasına Eren'in yazılıma olan merakından da bahsetmişti. Babası da böyle bir şeyin Eren'e yardımı dokunabileceğini düşünmüştü. Diğer poşetlerde ise bilgisayar için gerekli olabilecek birkaç donanım malzemesi, birkaç kitap ve bir de zarf vardı. 
+
+Zarfın içinde bir not vardı; 
+
+"
+
+Öncelikle;
+
+Sana teşekkür etmek istiyorum. Kızım seninle tanıştığı günden beri hiç olmadığı kadar mutlu. Bu halini görebilmek için sahip olduğum her şeyi vermeye hazırdım. Ama sen, benim yapamadığımı yaptın. Kızımın güvenliğini sağlamak zorunda olduğum için aslında sizi sürekli izliyordum. Bu süre içerisinde seni tanıma fırsatım oldu. Bundan sonra iyi anlaşacağımızı düşünüyorum. Ben insanlara kolay güvenen ve ısınan bir insan değilim. Fakat sende iyi ve kuvvetli bir enerji hissediyorum.
+
+Bu yüzden sana bu tutumumu anlayabilmen için kısa bir hikaye anlatmaya karar verdim. Yüz yüze anlatamayacağım bir hikaye olduğu için yazmayı tercih ettim. 
+
+Deniz'den önce bir oğlumuz vardı. 3 yaşına girdiği gün oğlumu ve anneannesini kaybettik. İkisi de cinayete kurban gitmişti. Katili olduğu söylenen kişi yakalandı ve şuan hapiste. Ancak bu konuda şüphelendiğim bazı şeyler var. İçimden bir ses, suçluların hâlâ dışarıda bir yerde olduğunu söylüyor. Belki de düşüncelerim tamamen kuruntudan ibarettir ama ben işimi şansa bırakmak istemiyorum. Bu nedenle kızımı bu şekilde korumak zorundayım. 
+
+Umarım beni anlarsın. Tekrar görüşmek üzere. 
+
+Kamil SAYGINER
+
+" 
 
 
 
