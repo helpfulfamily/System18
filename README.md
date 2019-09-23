@@ -155,14 +155,6 @@ O esnada Aru’nun bir arkadaşı gelip Aru’nun kulağına bir şey söyledi v
 
 Eren o gün Uyum Cafe’den bilincinin aydınlandığını hissederek ve biraz da merak içerisinde ayrılmıştı. Bu his, onun gelip gidişlerini sıklaştırmaya yetmişti. Birkaç hafta boyunca bu geliş gidişler devam etti ve bir karar verdi; “Deniz! Hayat, karnını doyurmaktan ibaret olmamalı. Kendime bir şans verip şehre taşınacağım.” 
 
-+
-+
-+
-++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
-+
-+
-+
-
 Deniz ufak bir tebessüm ile Eren’e bakıp; “Böyle bir karar vereceğini tahmin ettiğim için Uyum Cafe’ye yakın bir ev bulmuştum. Eğer beğenecek olursan o evde kalabilirsin. Bir tanıdığımın evi ve sana kefil olduğum için istediğin kadar kalabileceğini söyledi. Evi görmek ister misin?” 
 
 Eren; "İşlevini yerine getirebiliyorsa yeterli benim için. Bir evden çok da büyük beklentilerim yok. Sen yaşanabilir bir ev olduğunu düşünüyorsan, benim için de öyledir eminim ki." 
@@ -177,45 +169,42 @@ Deniz, kapıdaki adama bakıp; "Tanıştırayım baba, bu sana bahsettiğim arka
 
 Eren anlam veremediği bir sebepten dolayı mutlu hissetmişti ve Deniz'in babasını içeriye davet etti. 
 
-Kamil eve geçip odaları gezdikten sonra; "Daha erken tanışmak isterdim ama uygun zamana karar verememiştim. Umarım şimdi rahatsızlık vermemişimdir." diyerek elindeki poşetleri Eren'e verip; "Bunları taşınma hediyesi olarak getirdim. Pek bir şey değil ama kabul edersen mutlu olurum." dedi. 
+Arif eve geçip odaları gezdikten sonra; "Daha erken tanışmak isterdim ama uygun zamana karar verememiştim. Umarım şimdi rahatsızlık vermemişimdir." diyerek elindeki poşetleri Eren'e verip; "Bunları taşınma hediyesi olarak getirdim. Pek bir şey değil ama kabul edersen mutlu olurum." dedi. 
 
 Eren kibarca teşekkür edip hediyeleri aldı ve içindekilerin ne olduğuna bakmadan pencerenin kenarında duran sandalyenin üzerine koydu. 
 
 O esnada Deniz, babasına bakıp teşekkür edercesine gözlerini kırpıp başını eğdi ve tebessüm etti. Babasının anlayışlı yaklaşımından ve nezaketinden dolayı çok mutlu hissediyordu. Kendini bildi bileli babası ile hiçbir sorunu olmamıştı ama annesi Gülseren'in psikolojik sorunları olduğu için evde sürekli bir gerginlik ortamı oluyordu. 
 
-Kamil, sakin bir adamdı ama karısı Gülseren'in ileri derecedeki rahatsızlığı ile uğraşmak da kolay olmuyordu. Tartışmaları sırasında sesini yükselten ve şiddet kullanan taraf her zaman Gülseren oluyordu. Hatta tedavilere başlamadan önce bu şiddetin boyutu Kamil'i birkaç defa bıçakla yaralamaya kadar ilerlemişti. Kamil tüm bunlara rağmen Gülseren'e sabır ve erdemle yaklaşmıştı. Çünkü biliyordu ki Gülseren'in yaşadıkları hafife alınmayacak türden şeylerdi ve birçoğuna kendisi de şahit olmuştu. Ama ne yazık ki hiç kimsenin yapabileceği bir şey yoktu. 
+Arif, sakin bir adamdı ama karısı Gülseren'in ileri derecedeki rahatsızlığı ile uğraşmak da kolay olmuyordu. Tartışmaları sırasında sesini yükselten ve şiddet kullanan taraf her zaman Gülseren oluyordu. Hatta tedavilere başlamadan önce bu şiddetin boyutu Arif'i birkaç defa bıçakla yaralamaya kadar ilerlemişti. Arif tüm bunlara rağmen Gülseren'e sabır ve erdemle yaklaşmıştı. Çünkü biliyordu ki Gülseren'in yaşadıkları hafife alınmayacak türden şeylerdi ve birçoğuna kendisi de şahit olmuştu. Ama ne yazık ki hiç kimsenin yapabileceği bir şey yoktu. 
 
-Gülseren, evlendikten kısa bir süre sonra hamile kalmıştı ve dünyalar güzeli bir oğulları olmuştu. Oğulları, ikisi için de en kıymetli hazineydi. 3 yaşına girdiği günün sabahı uyandıklarında oğulları yatağında yoktu. Gülseren; "Göz açıp kapayıncaya kadar büyüdü. Şimdi bizimle saklambaç bile oynuyor baksana Kamil." dedi. Kamil de gülümseyip; "Bakalım kim önce bulacak?" diye yanıt verdi. 
+Gülseren, evlendikten kısa bir süre sonra hamile kalmıştı ve dünyalar güzeli bir oğulları olmuştu. Oğulları, ikisi için de en kıymetli hazineydi. 3 yaşına girdiği günün sabahı uyandıklarında oğulları yatağında yoktu. Gülseren; "Göz açıp kapayıncaya kadar büyüdü. Şimdi bizimle saklambaç bile oynuyor baksana Arif." dedi. Arif de gülümseyip; "Bakalım kim önce bulacak?" diye yanıt verdi. 
 
-Kamil kendine güveniyordu. Çünkü oğlu her zaman aynı yere saklanıyordu; Çatı katındaki sandığın içine. Kendinden emin adımlarla merdivenleri çıktıktan sonra çatı katının ışığını yaktı. Ama daha sandığa bakamadan Gülseren'in çığlığını duydu. Karısının yanına gittiğinde o inanılmaz manzarayı görmüştü; Oğlu salondaki şöminenin önünde, kanlar içerisinde yatıyordu. Oğlunun önüne kadar yavaş adımlarla ve donuk bakışlarla yürüdü. Yanına vardığında dizlerinin üzerine yığıldı ve yavaşça oğlunun ayağını tuttu. Oğlunun soğuk ve sert ayaklarına değdiği an, gözlerindeki yaşı serbest bıraktı! 
+Arif kendine güveniyordu. Çünkü oğlu her zaman aynı yere saklanıyordu; Çatı katındaki sandığın içine. Kendinden emin adımlarla merdivenleri çıktıktan sonra çatı katının ışığını yaktı. Ama daha sandığa bakamadan Gülseren'in çığlığını duydu. Karısının yanına gittiğinde o inanılmaz manzarayı görmüştü; Oğlu salondaki şöminenin önünde, kanlar içerisinde yatıyordu. Oğlunun önüne kadar yavaş adımlarla ve donuk bakışlarla yürüdü. Yanına vardığında dizlerinin üzerine yığıldı ve yavaşça oğlunun ayağını tuttu. Oğlunun soğuk ve sert ayaklarına değdiği an, gözlerindeki yaşı serbest bıraktı! 
 
-İkisi de çocuklarını kaybetmenin hüznü içindeyken ev telefonu çalmaya başladı. Ama ikisinin de telefona cevap verebilecek gücü yoktu. Gelen aramaların ardı arkası kesilmiyordu. Yaklaşık 1 saat kadar telefonları sürekli çaldı ve bu sefer evlerinin zili, ısrarla çalmaya başladı. En sonunda Kamil gücünü toplayıp kapıya bakabilmişti. Kapıdaki kişi karısının kız kardeşi Cemre'ydi. Ağlamaktan gözleri şişmişti. Cemre; "Annem... Annemi kaybettik. Sabah uyandığımızda... Salonda, yerde öylece kanlar içinde yatıyordu." dedi ve elleriyle yüzünü örtüp içeri girdi. Kamil bunu duyunca, durumun normal olmadığını anlamıştı. Ortada planlı olarak işlendiği bilinen iki cinayet vardı. Cemre salona gittiğinde ikinci bir şok yaşamıştı. Yeğeni de annesi gibi kanlar içerisinde yatıyordu. Yorgun sesi ile sitem edip koşarak yeğeninin yanına çöktü ve yüksek sesle ağlamaya başladı. Ablasına sarılıp; "Annem... Annem de..." dedi ama devamını getirememişti. Gülseren oğlunun acısının üzerine, çok sevdiği annesinin de acı haberini aynı anda alınca tamamen donuklaşmıştı.
+İkisi de çocuklarını kaybetmenin hüznü içindeyken ev telefonu çalmaya başladı. Ama ikisinin de telefona cevap verebilecek gücü yoktu. Gelen aramaların ardı arkası kesilmiyordu. Yaklaşık 1 saat kadar telefonları sürekli çaldı ve bu sefer evlerinin zili, ısrarla çalmaya başladı. En sonunda Arif gücünü toplayıp kapıya bakabilmişti. Kapıdaki kişi karısının kız kardeşi Cemre'ydi. Ağlamaktan gözleri şişmişti. Cemre; "Annem... Annemi kaybettik. Sabah uyandığımızda... Salonda, yerde öylece kanlar içinde yatıyordu." dedi ve elleriyle yüzünü örtüp içeri girdi. Arif bunu duyunca, durumun normal olmadığını anlamıştı. Ortada planlı olarak işlendiği bilinen iki cinayet vardı. Cemre salona gittiğinde ikinci bir şok yaşamıştı. Yeğeni de annesi gibi kanlar içerisinde yatıyordu. Yorgun sesi ile sitem edip koşarak yeğeninin yanına çöktü ve yüksek sesle ağlamaya başladı. Ablasına sarılıp; "Annem... Annem de..." dedi ama devamını getirememişti. Gülseren oğlunun acısının üzerine, çok sevdiği annesinin de acı haberini aynı anda alınca tamamen donuklaşmıştı.
 
 Cenaze sonrasında Gülseren'in tedavi görmesine karar verilmişti. Tedavi başladıktan 2 hafta sonra katilin yakalandığı haberini almışlardı. Olayı araştıran yetkililer, bu olayın birden fazla insan tarafından organize edildiğini düşünüyordu ama elde edilen yeni bulgularla katile ulaştıklarında her şeyi öğrenmişlerdi; Her şeyi planlayan yalnızca bir kişi vardı ve cinayetleri de kendisi işlemişti. Katil, takıntılı bir sapıktı ve Gülseren'i gençliğinden beri seviyordu. Gülseren hiçbir zaman onu onaylamamıştı ve hiçbir şekilde hoşlanması için çaba göstermemişti. "Gözlerine aşık oldum, seni elde etmesi zor olduğu için aşık oldum." derdi. Mahkemede verdiği ifadede; "Evlenmemesini söylemiştim. Eğer evlenirse ona unutamayacağı bir acı yaşatacağımı söylemiştim. Bana inanmalıydı. Hepsi onun suçu!" diyerek kendisini savunmaya çalışmıştı. Ancak çıkarıldığı mahkemece suçunun cezasına karar verildi ve hapsedildi. 
 
-Kamil, birkaç lüks oteli, büyük bir şirket ortaklığı ve borsada yüklü miktarda parası olan bir adamdı. Ancak hiçbir zaman lükse düşkünlüğü olmamıştı. Maddi gücünü gizlice, yardıma ihtiyacı olan insanlar için kullanıyordu. Sadece, insanlara daha fazla yardım edebilmek için daha çok kazanmak ve başarılı olmak istiyordu. Zaten biliyordu ama oğlunu bu şekilde kaybetmek ona, her insana güvenilemeyeceğini birkere daha öğretmişti. Bu nedenle maddi gücü yüzünden kendisini hedef olarak belirleyebilecek insanlara karşı önlem almak için zenginliğini gizlemeye karar vermişti. Zaten onun için önemli olan zenginliği ile gösteriş yapmak da değildi. 
+Arif, birkaç lüks oteli, büyük bir şirket ortaklığı ve borsada yüklü miktarda parası olan bir adamdı. Ancak hiçbir zaman lükse düşkünlüğü olmamıştı. Maddi gücünü gizlice, yardıma ihtiyacı olan insanlar için kullanıyordu. Sadece, insanlara daha fazla yardım edebilmek için daha çok kazanmak ve başarılı olmak istiyordu. Zaten biliyordu ama oğlunu bu şekilde kaybetmek ona, her insana güvenilemeyeceğini birkere daha öğretmişti. Bu nedenle maddi gücü yüzünden kendisini hedef olarak belirleyebilecek insanlara karşı önlem almak için zenginliğini gizlemeye karar vermişti. Zaten onun için önemli olan zenginliği ile gösteriş yapmak da değildi. 
 
-Aradan geçen yıllarda karısının tedavileri iyi sonuçlar vermeye başlamıştı. En azından artık ilk günlerdeki gibi değildi. Birkaç yıl sonra Gülseren, yeniden hamile olduğunu öğrenmişti ve sevinçle kocasının boynuna sarılmak yerine ona doğru bakıp, ağlamaya başladı; "Korkuyorum..." dedi. "Bu sefer korkman için hiçbir sebep yok." dedi Kamil. Hüznü ve mutluluğu aynı anda yaşıyorlardı o an. İşte Deniz, o zaman dünyaya gelmişti; Gizli bir milyarderin, masum kızı olarak. 
+Aradan geçen yıllarda karısının tedavileri iyi sonuçlar vermeye başlamıştı. En azından artık ilk günlerdeki gibi değildi. Birkaç yıl sonra Gülseren, yeniden hamile olduğunu öğrenmişti ve sevinçle kocasının boynuna sarılmak yerine ona doğru bakıp, ağlamaya başladı; "Korkuyorum..." dedi. "Bu sefer korkman için hiçbir sebep yok." dedi Arif. Hüznü ve mutluluğu aynı anda yaşıyorlardı o an. İşte Deniz, o zaman dünyaya gelmişti; Gizli bir milyarderin, masum kızı olarak. 
 
 Tanıma fırsatı bulamadığı kardeşinin acısı ile dolu bir evde, onun acısı ile zor nefes alan bir annenin yarı donuk bakışları arasında, sırtını babasının sıcak kucağına yaslayarak büyümüştü. Babası her zaman güvendiği bir sığınak olmuştu Deniz için. Ama ergenlik dönemlerinin verdiği asabi zamanlar gelip çattığında, aslında hiç yapmayacağı şeyler yapmaya ve sonrasında pişman olmaya başlamıştı. Nitekim en son evden kaçması da bu dönem içerisindeydi. Yaptığı bir hata da olsa, iyi bir sonucu olmuştu; Eren ile tanışmıştı. 
 
 Ve şimdi ise, hiç ummadığı bir anda tanıştığı Eren ile babasının sohbetini, tebessüm edişlerini izliyordu. Hayatın insana neleri sunacağı hiç belli olmuyordu.
 
-Kamil; "Deniz. Bizimle misin? Aklın başka yerlerde gibi sanki." dediği an Deniz de başını hafifçe sallayıp; "Öylece dalmışım baba. Sadece... Mutluyum. Teşekkür ederim geldiğin için." dedi. 
+Arif; "Deniz. Bizimle misin? Aklın başka yerlerde gibi sanki." dediği an Deniz de başını hafifçe sallayıp; "Öylece dalmışım baba. Sadece... Mutluyum. Teşekkür ederim geldiğin için." dedi. 
 
-Kamil; "Tahmin ettiğim gibi, evin güzel bakıma ihtiyacı var. Uzun süredir boş duruyordu ve bakım yaptırmak için hiç fırsatımız olmamıştı. Bu yüzden evin temizliği ve boyası için birkaç kişi gelecek. Biz de onların işini kolaylaştırmak için biraz hazırlık yapalım. Ne dersiniz?" dedi. Yanıt bile almadan kollarını sıvayıp Eren'in taktığı perdeleri geri çıkarmakla işe başladı. 
+Arif; "Tahmin ettiğim gibi, evin güzel bakıma ihtiyacı var. Uzun süredir boş duruyordu ve bakım yaptırmak için hiç fırsatımız olmamıştı. Bu yüzden evin temizliği ve boyası için birkaç kişi gelecek. Biz de onların işini kolaylaştırmak için biraz hazırlık yapalım. Ne dersiniz?" dedi. Yanıt bile almadan kollarını sıvayıp Eren'in taktığı perdeleri geri çıkarmakla işe başladı. 
 
-Gülseren'in yanında yardımcı bir bayan olduğu için Kamil gün boyu yardım edebilmişti. Güzel vakit geçirmişlerdi ve bir o kadar da yorulmuşlardı. Saat gece yarısına ulaşınca işlerin hepsi bitmişti ve rahat bir nefes aldıktan sonra Deniz ile birlikte evlerine gittiler.
+Gülseren'in yanında yardımcı bir bayan olduğu için Arif gün boyu yardım edebilmişti. Güzel vakit geçirmişlerdi ve bir o kadar da yorulmuşlardı. Saat gece yarısına ulaşınca işlerin hepsi bitmişti ve rahat bir nefes aldıktan sonra Deniz ile birlikte evlerine gittiler.
 
-
-Eren, yalnız kalınca Kamil'in getirdiği hediyeleri açıp yerleştirmek istemişti. Önce büyük olan kutuyu poşetten çıkarttı. Biraz ağırdı ve kırılabilecek bir şey olabileceğini düşünüp yavaşça yere bıraktı. Kutunun içindeki, çantası ile birlikte koyulan bir dizüstü bilgisayardı. Deniz, babasına Eren'in yazılıma olan merakından da bahsetmişti. Babası da böyle bir şeyin Eren'e yardımı dokunabileceğini düşünmüştü. Diğer poşetlerde ise bilgisayar için gerekli olabilecek birkaç donanım malzemesi, birkaç kitap ve bir de zarf vardı. 
+Eren, yalnız kalınca Arif'in getirdiği hediyeleri açıp yerleştirmek istemişti. Önce büyük olan kutuyu poşetten çıkarttı. Biraz ağırdı ve kırılabilecek bir şey olabileceğini düşünüp yavaşça yere bıraktı. Kutunun içindeki, çantası ile birlikte koyulan bir dizüstü bilgisayardı. Deniz, babasına Eren'in yazılıma olan merakından da bahsetmişti. Babası da böyle bir şeyin Eren'e yardımı dokunabileceğini düşünmüştü. Diğer poşetlerde ise bilgisayar için gerekli olabilecek birkaç donanım malzemesi, birkaç kitap ve bir de zarf vardı. 
 
 Zarfın içinde bir not vardı; 
 
 "
-
 Öncelikle;
-
 Sana teşekkür etmek istiyorum. Kızım seninle tanıştığı günden beri hiç olmadığı kadar mutlu. Bu halini görebilmek için sahip olduğum her şeyi vermeye hazırdım. Ama sen, benim yapamadığımı yaptın. Kızımın güvenliğini sağlamak zorunda olduğum için aslında sizi sürekli izliyordum. Bu süre içerisinde seni tanıma fırsatım oldu. Bundan sonra iyi anlaşacağımızı düşünüyorum. Ben insanlara kolay güvenen ve ısınan bir insan değilim. Fakat sende iyi ve kuvvetli bir enerji hissediyorum.
 
 Bu yüzden sana bu tutumumu anlayabilmen için kısa bir hikaye anlatmaya karar verdim. Yüz yüze anlatamayacağım bir hikaye olduğu için yazmayı tercih ettim. 
@@ -224,17 +213,88 @@ Deniz'den önce bir oğlumuz vardı. 3 yaşına girdiği gün oğlumu ve anneann
 
 Umarım beni anlarsın. Tekrar görüşmek üzere. 
 
-Kamil SAYGINER
+Arif SAYGINER
 
 " 
+ 
+Eren, notu geri katlayıp zarfın içerisine koydu ve zarfı da Arif'in hediye ettiği kitaplardan birinin arasına koydu. Arif'in verdiği hediyeleri yerine koyduktan sonra hava almak için balkona çıktı. Balkonun tam karşısında büyük bir kavçuk ağacı vardı. Yapraklarının rüzgârda sallanışını izliyordu. Dinlendirici hava Eren'i sakinleştirmişti ve o an gözlerini kapatıp rüzgarı dinlemeye başladı. Birkaç dakika sonra birinin kısık sesle kendisini çağırdığını duydu. Gözlerini açtığında yanıbaşında, hava süzülen mavi bir ışık gördü. Ormandaki ışığa benziyordu. Aynı onun gibi insan şekline büründü. Ormandaki yüz ile aynı yüze sahipti. Sıradan bir durummuş gibi yüzünü ağaca doğru çevirip onu izlemeye devam etti. "Ben 27'yim." dedi yanındaki ruhani varlık ve devam etti; "Aslında birçok zamanlar yanındayım. Sanırım sadece bilincinin açık olduğu zamanlarda beni görebiliyorsun."
+
+Eren; "Seni ormanda gördükten sonra Aru adındaki birine seni sormaya gittim. Çünkü ona benziyorsun. Aru senin kendi ağabeyi olabileceğini düşündü. Bu tahmininde haklılık payı var mı?" 
 
 
 
+
+
+--------------{@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
+
+
+
+
+
+27; "Sanırım doğru tahmin etmiş. Ancak kesin bir cevap vermek mümkün değil. Ben bilincimin hiç kopmadan bu yaşantıma geçtiğimi düşünüyorum. Ancak hatıralarımız hiçbir şeyi kesin olarak kanıtlayamaz. Belki de ilk nefesini alan bir kopyadan ibaretsindir ama hatıraların, olmadığın bir kişi olduğunu düşündürüyordur. Bunlar mühim konular değil. Şuan senin ilgilenmen gereken daha önemli meseleler var; Kendi hayatın gibi. Deniz'in babası, kimseye anlatmadığı sırlarını sana açıkladı. Bunun sebebini merak etmiş olmalısın. 
+
+Eren o an, 27'nin tanrının bir parçası olabileceğini düşündü ama bunu bir kenara bırakıp o anki konuşmaya odaklanmak istedi ve hafifçe başını salladıktan sonra; "Evet." dedi. 
+
+27; "Bıraktığı notta anlatmadığı önemli bir detay vardı. Çocuğunun cansız bedeni incelenmeye alındığında, kızgın demirle sırtına bir damga vurulduğunu farketmişleri. Aynı damga eşinin annesinin sırtında da vardı. Buna benzer birkaç vaka daha olduğunu öğrenmişti. Bunun seninle alakası da şu; Aynı damgaya, senin babanın sırtında da  rastlandı. 
+
+Genel olarak son derece sakin olan Eren, öğrendiği sarsıcı bilgiden sonra şaşkınlığını gizleyememişti ve biraz tedirgin, biraz endişeli ve biraz da kızgın bir ses tonu ile; "Bu... Ne demek oluyor? Yoksa benim babam da mı kurbanlardan biri?"  
+
+27; "Ancak... Babanın ölümü diğer kurbanların ölümüne benzemiyordu ve sırtındaki damga da oldukça eskiydi. Bu nedenle Arif, babanın da sorumlularla birlikte olduğundan ve dolayısıyla senin de onlarla bağlantın olabileceğini düşündüğünden dolayı sana bir süre şüphe ile yaklaştı ve tanıyabilmek için seni sürekli izledi. Bu sürenin sonunda sana güvenmeyi seçti. Önünde gizemini çözmen gereken büyük bir öykü var. Muhtemelen bugün uyumak istemeyeceksin ama uyumalısın. Rüyanda göreceklerin bu öyküyü çözebilmen için sana ışık tutacak." deyip tebessüm etti ve ışık haline geri dönüp göğe yükseldikten sonra gözden kayboldu. 
+
+Eren balkonun demirlerine tutunup kafasını öne eğdi ve gözlerini kapattı. Rüyada olup olmadığını düşünüyordu. Ancak bunların rüya ile bir ilgisi yoktu, hepsi gerçekten yaşanmıştı ve devamı da olacaktı. Sadece odun taşıyan bir insanın hayatını yaşamayacağını her zaman hissetmişti ama böyle bir şeyi hiç hayal etmemişti. Üzerindeki ağırlık hissini atamamıştı ama yine de doğrulup ileri baktı ve ciddiyetini takınıp bu sorumluluğu kabul edercesine kafasını salladı. 
+
+O gece rüyasında, Arif'in cinayete kurban giden çocuğunu görmüştü. Tüm hayatını, son anına kadar özetleyen bir rüyaydı. Kızgın demir ile çocuğun sırtına damgayı bastıkları anı da görmüştü ve tabii damgayı da. 
+
+O günün sabahında, evden çıkmak için hazırlanmıştı. Ayakkabılarını giyerken kapı çaldı. Eren, kapıda Deniz'i gördü ve bir süre öylece bakakaldı. Hiçbir şey diyemiyordu ve gözlerini de Deniz'in gözlerinden alamıyordu. Rüyasında gördüklerinden ve 27'den duyduklarından sonra çok etkilenmişti. Hayatının değişeceğinin farkındaydı. Ne olursa olsun Deniz'e bunu yansıtıp, onun da hayatını etkilemek istemiyordu. Deniz'e bakakaldığı o kısa süre içerisinde belki de yüzlerce olasılık düşünmüştü. Nedenini ve ne olduğunu bilmiyordu ama Deniz'e karşı farklı bir duygu besliyordu ve bunun farkındaydı. Ona zarar gelmesini istemiyordu. 
+
+Deniz, gülümseyerek; "Ben de seni almaya gelmiştim. Fazladan Thankcoin kazandım ve sana bir şeyler ısmarlamak istiyorum. Uyum Cafe'ye gidelim mi?" dedi. Deniz konuşunca Eren de kendisine geldi ve ayakkabılarını giymeyi bitirip evden çıktı.
+
+Uyum Cafe'ye gittiklerinde, 27'nin kapının önünde olduğunu gördü. Deniz'den, içeri geçmesini rica etti ve birazdan kendisinin de geleceğini söyledi. 
+
+27 bakışlarını siyah bir arabaya dikmişti. İçindeki insanlara öfke ile baktığı anlaşılıyordu ve; "Hergün, saat 14:00 civarlarında mutlaka buraya uğruyorlar." dedi.
+
+Eren; "Kim olduklarını biliyor musun?" 
+
+27; "Evet. Uzun süredir bu bölgenin sahibi olmayaca çalışan bir adamın çalışanları. Para karşılığında her türlü pis işi yapabilirler. Hangi makamlarda sözlerinin geçtiğini kestirmek oldukça güç ama bu kadar rahat davranmalarının da bir sebebi olmalı."
+
+Eren, aracın içindeki adamların aşağı inmeye niyetlendiklerini anlayınca; "Arabadan inmeleri normal mi peki? Bunu da hergün yapıyorlar mıydı?"
+
+27; "Hayır. Bu oldukça nadir bir durum. İşimize gelmeyecek bir planları olmalı." 
+
+Aracın içerisindeki adamlar kızgın bakışlarla aşağı inip ellerindeki makineli tüfekleri Uyum Cafe'ye doğrultup ateş etmeye başladı. Her şey çok hızlı gerçekleşmeye başlamıştı ve 27 bile böyle bir şeyi beklemiyordu. Bu beklenmedik olayın karşısında 27 bile ruhsal bir bedende olduğunu unutup  bir anlığına koruma iç güdüsü ile hareket etmişti ve Eren'in önüne kendisini siper etmişti. O anları ağır çekimde izliyor gibiydi. Adamlar hem ateş açıyor hem de Uyum Kafe'ye doğru yürüyorlardı. Aynı anda onlarca mermi yanlarından geçiyor, dükkanın camlarını parçalayıp içeriye giriyor ve insanlara zarar veriyordu. Ancak Eren, beklenmedik başka bir şeyin daha farkına vardı; 27 kendisini siper ettiği için kurşunlar Eren'e isabet etmiyordu. Ruhsal bir varlık, yüksek bir hız ve basınçla üzerine gelen mermiye etki edebilir miydi ki? 
+
+Adamlardan biri de, özellikle Eren'e doğru ateş açmasına rağmen kurşunların ona isabet etmediğini farketti. Tabii ki bu durumu garipsemişti fakat mantıklı bir cevap veremediği için o an, mermilerin şans eseri ona isabet etmediğini düşünmüştü. Fakat bu durumun hiç de mantıklı olmadığını anlayacağı zaman da gelecekti ve Eren'in kim olduğu da merak edilecekti.
+
+Yakınlarda devriye gezen bir polis aracının sirenleri, silah seslerinin ardından çalmaya başladı ve siren sesleri Uyum Kafe'ye doğru yaklaşıyordu. Adamlar polis sirenlerini farkedince apar topar araçlarına binip uzaklaştı. Ancak araçlarına bindiklerinde pişkince gülmeyi ihmal etmediler. Bu koca kasaba kendilerine aitmiş gibi, istedikleri her şeyi yapabileceklerini sanıyorlardı.  
+
+Eren, hepsinin yüzünü aklının bir köşesine kazıyordu ama bir yandan da Deniz'i düşünüyordu. Araç uzaklaştıktan sonra vakit kaybetmeden Kafe'ye girip Deniz'e bakınmaya başladı. Yaralanan ve ölen birçok insan vardı. Yerde yatan insanları gördükçe içinde büyük bir kin birikiyordu. İstemsizce yumruklarını sıkmıştı. Deniz'in yaralı veya cansız haliyle karşılaşmak istemiyordu. Ancak onu hiçbir yerde bulamamıştı. 
+
+
+Eren, Deniz'in neden kaybolduğuna anlam veremiyordu. 27'ye dönüp; "Belki de şimdi sırası değil ama; Daha önce hiç mermileri durdurmuş muydun?" 
+
+27; "Açıkçası böyle bir gücümün olduğunu bilmiyordum. O an ruhsal bir bedende olduğumu bile unutmuştum."
+
+Eren; "Buna rağmen mermilerin önüne geçtin. Yani biyolojik bedeninde olsaydın beni korumak için ölecektin. Teşekkür ederim."
+
+27; "Görünen o ki Eren; Koca bir yol çizilmiş hattat eliyle, kahve fincanına."
+
+
+Uyum Cafe birkaç günlük tadilat sürecine girmişti. Büyük bir yas havası hakimdi. Deniz de hâlâ kayıptı ve babasına da ulaşamıyordu. Eren bu süre içerisinde dağdaki kulübesine gitti. Birkaç günün ardından geri döndüğünde Uyum Cafe'deki tadilat da bitmişti ama yas havası devam ediyordu. Deniz'den hâlâ haber yoktu. Birkaç hafta boyunca da haber alamayacaktı... 
+
+Uzun süren araştırmaların sonucunda saldırıyı düzenleyenlerin kimliklerinin tespit edilemediği iddia edilmişti. Oysa ki onları herkes tanıyordu, kimin için çalıştığını herkes biliyordu. Her yerde güvenlik kamerası da vardı. Buna rağmen hiçbir şey olmamış gibi davranıyorlardı ve belli ki faili meçhul bir olay gibi gösterilecekti.
+
+Birkaç hafta sonra Aru, Eren'i ziyaret etmek için evine gitti. Cafe'deki güvenlik kameralarının görüntülerini Eren'e izletmesi gerektiğini düşünmüştü. 
+
+Aru; "Bu kadar zaman sonra izletmeye karar vermemin sebebini videoları izledikten sonra söyleyeceğim. Umarım beni anlayışla karşılarsın Eren."
+
+Görüntülerde, Deniz'in babası Uyum Cafe'deki insanlara telaşlı şekilde bir şeyler söylemeye çalışıyor. İnsanlar da telaşlanıp etraflarına bakmaya başlıyor. O sırada Deniz, Uyum Cafe'ye giriyor ve babası ile karşılaşıyor. Arif, kızının kolundan tutarak bir şeyler söylüyor. Telaşla arka kapıdan çıkıp, yan sokaktaki aracına biniyorlar.  
+
+Aru; "İnsan ister istemez bu görüntüleri izleyince, Arif Bey'den şüpheleniyor. Tam da saldırıdan kısa süre önce, olacakları biliyormuş gibi telaşlı davranıyor ve kızını alıp uzaklaştırıyor. Bu görüntüleri izleyip de Arif Bey'in bir şeyler biliyor olduğundan veya onlardan biri olduğundan şüphelenmemek elde değil. Bu şüpheyi doğuran söz konusu kişi  Deniz'in babası olduğu için de bunları sana izletme fikrimi sürekli ertelemiştim." 
+
+Eren; "Bir kitapta şöyle bir soru okumuştum; "Sonsuz evreni, avuçlarının içine aldığını düşün; O zaman, evrenin neresinde olurdun?" Bazen ben de evreni avuçlarımın içine aldığımı hayal ediyorum. Bu yolla, aslında her şeyi kontrol etmek isterken, hiçbir şeyi kontrol edemeyeceğimi  daha  iyi anlıyorum. Çünkü kontrol etmek istediğim her şeyin, dışında kalmış oluyorum. Anlayamadığım şey şu; Acaba kontrol edemeyecek kadar dışında mıyım bu olayların, yoksa resmin tamamını göremeyecek kadar yakından mı bakıyorum?" 
 
  
 
 
 
 
-
-    
