@@ -223,14 +223,6 @@ Eren; "Seni ormanda gördükten sonra Aru adındaki birine seni sormaya gittim. 
 
 
 
-
-
---------------{@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
-
-
-
-
-
 27; "Sanırım doğru tahmin etmiş. Ancak kesin bir cevap vermek mümkün değil. Ben bilincimin hiç kopmadan bu yaşantıma geçtiğimi düşünüyorum. Ancak hatıralarımız hiçbir şeyi kesin olarak kanıtlayamaz. Belki de ilk nefesini alan bir kopyadan ibaretsindir ama hatıraların, olmadığın bir kişi olduğunu düşündürüyordur. Bunlar mühim konular değil. Şuan senin ilgilenmen gereken daha önemli meseleler var; Kendi hayatın gibi. Deniz'in babası, kimseye anlatmadığı sırlarını sana açıkladı. Bunun sebebini merak etmiş olmalısın. 
 
 Eren o an, 27'nin tanrının bir parçası olabileceğini düşündü ama bunu bir kenara bırakıp o anki konuşmaya odaklanmak istedi ve hafifçe başını salladıktan sonra; "Evet." dedi. 
@@ -291,7 +283,13 @@ Görüntülerde, Deniz'in babası Uyum Cafe'deki insanlara telaşlı şekilde bi
 
 Aru; "İnsan ister istemez bu görüntüleri izleyince, Arif Bey'den şüpheleniyor. Tam da saldırıdan kısa süre önce, olacakları biliyormuş gibi telaşlı davranıyor ve kızını alıp uzaklaştırıyor. Bu görüntüleri izleyip de Arif Bey'in bir şeyler biliyor olduğundan veya onlardan biri olduğundan şüphelenmemek elde değil. Bu şüpheyi doğuran söz konusu kişi  Deniz'in babası olduğu için de bunları sana izletme fikrimi sürekli ertelemiştim." 
 
-Eren; "Bir kitapta şöyle bir soru okumuştum; "Sonsuz evreni, avuçlarının içine aldığını düşün; O zaman, evrenin neresinde olurdun?" Bazen ben de evreni avuçlarımın içine aldığımı hayal ediyorum. Bu yolla, aslında her şeyi kontrol etmek isterken, hiçbir şeyi kontrol edemeyeceğimi  daha  iyi anlıyorum. Çünkü kontrol etmek istediğim her şeyin, dışında kalmış oluyorum. Anlayamadığım şey şu; Acaba kontrol edemeyecek kadar dışında mıyım bu olayların, yoksa resmin tamamını göremeyecek kadar yakından mı bakıyorum?" 
+
+
+@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
+
+
+
+Eren, izlediklerinden sonra olay gününü aklında tekrar canlandırdı. Deniz'in bu insanlarla bağlantısı olabileceğini düşündüren hiçbir şey dikkatini çekmemişti. Babası da iyi bir insan olmalıydı. Aksini düşüneceği hiçbir şey hissetmemişti. Aceleci ve yanlış bir karar vermektense, Aru gibi etraflıca düşünüp araştırmanın daha mantıklı olduğuna karar verdi. Yaşananların sebebini bilemeyecek kadar  dışındaydı olayların. Kendi iç dünyasında bir yalnız kalıp düşündükten sonra Eren; "Bir kitapta şöyle bir soru okumuştum; "Sonsuz evreni, avuçlarının içine aldığını düşün; O zaman, evrenin neresinde olurdun?" Bazen ben de evreni avuçlarımın içine aldığımı hayal ediyorum. Bu yolla, aslında her şeyi kontrol etmek isterken, hiçbir şeyi kontrol edemeyeceğimi  daha  iyi anlıyorum. Çünkü kontrol etmek istediğim her şeyin, dışında kalmış oluyorum. Anlayamadığım şey şu; Acaba kontrol edemeyecek kadar dışında mıyım bu olayların, yoksa resmin tamamını göremeyecek kadar yakından mı bakıyorum?" 
 
  
 
